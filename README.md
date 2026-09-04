@@ -35,5 +35,6 @@ Em breve postarei os respectivos links.
 ========================================================================================================================================
 Informações de contato-
 email: arthur11417@gmail.com
+https://www.linkedin.com/in/arthur-evangelista-884201413?utm_source=share_via&utm_content=profile&utm_medium=member_android
 
 
